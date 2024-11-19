@@ -90,3 +90,4 @@ Or Facebook <a href="https://www.facebook.com/aduri.knox01/"><img src="https://i
 <a href="https://t.me/AD0000000"><img src="https://img.shields.io/badge/Telegram-Contact%20Telegram%20Profile-blue.svg?logo=telegram"></a>
 </p><p align="left"> 
  
+ddos ripper
